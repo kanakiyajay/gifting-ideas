@@ -7,3 +7,4 @@ Gift Guide, Inspirations, Ideas, DIY, lists, catalogs, etc for occasions like bi
 * [Hand-picked Gifts ideas For Geeks](https://best-gifts.in/gifts-for-geeks/)
 * [Here’s a Guide to Gifting below Rs 1000](https://best-gifts.in/gifts-below-rs-1000/)
 * [Gifts for her](https://best-gifts.in/top-gifts-for-her/)
+* [Housewarming Gifts](https://best-gifts.in/housewarming-gifts/)
