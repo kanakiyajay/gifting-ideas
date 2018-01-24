@@ -9,3 +9,4 @@ Gift Guide, Inspirations, Ideas, DIY, lists, catalogs, etc for occasions like bi
 * [Gifts for her](https://best-gifts.in/top-gifts-for-her/)
 * [Housewarming Gifts](https://best-gifts.in/housewarming-gifts/)
 * [The amazing couple gift guide](https://best-gifts.in/couple-gift-ideas/)
+* [Gifting Guide for Creative Gifts](https://best-gifts.in/the-definitive-list-of-all-educational-gifts-for-kids/)
